@@ -1,1 +1,1 @@
-# 2.repozitar
+Vytvoøil jsem to abych splnil úkol.
